@@ -1,2 +1,2 @@
-# riyazshaikplvd-riyazshaikplvd.github.io
+#riyazshaikplvd.github.io
 SOC ANALYST PORTFOLIO-CLAUDE
